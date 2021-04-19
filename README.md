@@ -1,4 +1,2 @@
 # clawblog
-KEVIN
-KEVIN TOLOL
-KEVIN TOLOL BANGET
+Kevin bau
